@@ -1,0 +1,4 @@
+- 👋 olá, eu sou a @sthe-das-cria
+- 👀 temho interesse em billie eilish
+- 🌱 estou aprendendo a tocar ukulele
+- 💞️ estou procurando colaborar na minha igreja
